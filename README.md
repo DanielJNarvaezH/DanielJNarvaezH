@@ -56,7 +56,8 @@
 
 📧 Email: [danieljosue727@gmail.com](mailto:danieljosue727@gmail.com)  
 💼 LinkedIn: [Daniel Josué Narváez Hincapié](https://www.linkedin.com/in/daniel-josue-narvaez-hincapie/)  
-🐙 GitHub: [DanielJNarvaezH](https://github.com/DanielJNarvaezH)
+🐙 GitHub: [DanielJNarvaezH](https://github.com/DanielJNarvaezH)  
+📜 Credly: [Daniel Josué Narváez Hincapié](https://www.credly.com/users/daniel-josue-narvaez-hincapie)
 
 ---
 
